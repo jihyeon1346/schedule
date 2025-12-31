@@ -1,1 +1,2 @@
-![스크린샷 2025-12-31 194158.png](../../OneDrive/%EB%B0%94%ED%83%95%20%ED%99%94%EB%A9%B4/%EC%8A%A4%ED%81%AC%EB%A6%B0%EC%83%B7%202025-12-31%20194158.png)
+<img width="827" height="495" alt="image" src="https://github.com/user-attachments/assets/fdfcb60d-f5dc-4401-80a3-507a30853ad6" />
+
